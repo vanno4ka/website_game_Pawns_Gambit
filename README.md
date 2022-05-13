@@ -1,0 +1,2 @@
+# website_game_Pawns_Gambit
+"Pawn's Gambit" is the story of a pawn who is left alone to defend the white king with his body. You will have to complete an impossible mission: independently, without any help, reach the black king and defeat him in battle. Thus, the pawn will become the queen and white will have a chance to win. Show your skills in chess and fight in small epic battles with all black chess! If you succeed, this story will become legendary and will forever go down in history under the name "Pawn's Gambit"!
